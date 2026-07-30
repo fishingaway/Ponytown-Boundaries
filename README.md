@@ -1,6 +1,12 @@
 # Ponytown-Boundaries
-This is in in the Work-In-Progress stage and does not have anything in it yet!
+☆ ︶︶︶  ౿ ָ 🤍 𞥊   ︶︶︶ ☆
 
-though here are the basic things:
-
-C+H , DNC, DNTI, int, w2i
+   Ι ᥲᥴᥴᥱρt:  ◟   ᥴᥙddᥣᥱ᥉, hᥙg᥉, kι᥉᥉ᥱ᥉, B᥆᥆ρ᥉ , ᥕhι᥉ρᥱr᥉  , Ιtᥱ꧑ rᥱᥴᥱι᥎ιᥒg
+    𓏴𓏴  ᥣιght ιᥒ᥉ρ᥆  📞  ᥉hιρ᥉
+    
+    ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
+    
+       Ι ᥲᥴᥴᥱρt:  ◟   ᥴᥙddᥣᥱ᥉, hᥙg᥉, kι᥉᥉ᥱ᥉, B᥆᥆ρ᥉ , ᥕhι᥉ρᥱr᥉  , Ιtᥱ꧑ rᥱᥴᥱι᥎ιᥒg
+    𓏴𓏴  ᥣιght ιᥒ᥉ρ᥆  📞  ᥉hιρ᥉
+    
+☆ ︶︶︶  ౿ ָ 🤍 𞥊   ︶︶︶ ☆
